@@ -1,1 +1,1 @@
-https://falawad.github.io/Dawzan/Dawzan-Report.html
+https://falawad.github.io/Dawzan/Dawzan_Report.html
